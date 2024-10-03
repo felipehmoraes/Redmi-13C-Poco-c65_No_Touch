@@ -1,0 +1,1 @@
+# Redmi-13C-Poco-c65_No_Touch
